@@ -11,7 +11,7 @@
 ![image alt](dividers.gif)
 
 <details>
-<summary>⭐ Byi</summary>
+<summary>𖥻 ׁ ׅ  byi ! ﹒  ◡◡</summary>
 
 ֺּׅ𓏽⑅ — Please Int with Extreme caution if I barely know you, Since I'm not very good around unfamiliar people. I'd love to talk with you but Kindly start the Convo first since I don't know how to start one .. ༎ຶ⁠‿⁠༎ຶ
 
@@ -35,10 +35,9 @@ Eunoia #1 fan
 
 
 </details>
-↓↓
 
 <details>
-<summary>⭐ interests</summary>
+<summary>🩹﹕𐔌・interests〃・꒱</summary>
 
 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
 
@@ -49,35 +48,8 @@ Interested In : DreamGame . Forsaken . Law Of Talos . MLBB . Aphmau . Genshin Im
 
 </details>
 
-↓
-
 <details>
-<summary>meanings of the abbreviations you see in statuses</summary>
-
-
-⟢ int = interact
-⟢ oti = okay to interact
-⟢ piu = please interact
-⟢ ati = ask to interact
-⟢ dni = do not interact
-⟢ dniuc = do not interact unless close
-⟢ dniu = do not interect unless (intials after)
-⟢ dniuid = do not interact unless i do
-⟢ dniic = do not interact if close
-⟢ bgwi = be gentle when interacting
-⟢ begwi = be extremely gentle when interacting
-⟢ iwc = interact with care/caution
-⟢ iwec = interact with extreme care/caution
-⟢ aiwc = always interact with care/caution
-⟢ aiwec = always interact with extreme care/caution
-⟢ iayor = interact at your own risk
-
-</details>
-
-(⁠ノ⁠ 彡⁠┻⁠━⁠┻
-
-<details>
-<summary>Blinkies</summary>
+<summary>𐔌   ᛝBlinkies.ᐟ  𐂯</summary>
 
 ![image alt](blinkiesCafe-77.gif)
 ![image alt](blinkiesCafe-mN.gif)

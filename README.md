@@ -33,6 +33,7 @@ Eunoia #1 fan
 
 
 </details>
+↓↓
 
 <details>
 <summary>⭐ interests</summary>
@@ -45,6 +46,7 @@ Interested In : DreamGame . Forsaken . Law Of Talos . MLBB . Aphmau . Genshin Im
 
 
 </details>
+↓↓
 
 <details>
 <summary>meanings of the abbreviations you see in statuses</summary>
@@ -68,7 +70,7 @@ Interested In : DreamGame . Forsaken . Law Of Talos . MLBB . Aphmau . Genshin Im
 ⟢ iayor = interact at your own risk
 
 </details>
-
+↓↓
 
 <details>
 <summary>Blinkies</summary>

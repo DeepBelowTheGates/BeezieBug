@@ -8,6 +8,8 @@
 
 ![image alt](Untitled42_20261001204852.png)
 
+![image alt](dividers.gif)
+
 <details>
 <summary>⭐ Byi</summary>
 
@@ -33,7 +35,9 @@ Eunoia #1 fan
 
 
 </details>
-↓↓
+
+![image alt](dividers.gif)
+
 
 <details>
 <summary>⭐ interests</summary>
@@ -46,7 +50,8 @@ Interested In : DreamGame . Forsaken . Law Of Talos . MLBB . Aphmau . Genshin Im
 
 
 </details>
-↓↓
+
+![image alt](dividers.gif)
 
 <details>
 <summary>meanings of the abbreviations you see in statuses</summary>
@@ -58,7 +63,7 @@ Interested In : DreamGame . Forsaken . Law Of Talos . MLBB . Aphmau . Genshin Im
 ⟢ ati = ask to interact
 ⟢ dni = do not interact
 ⟢ dniuc = do not interact unless close
-⟢ dniu = do not interact unless (list names/initials after)
+⟢ dniu = do not interect unless (intials after)
 ⟢ dniuid = do not interact unless i do
 ⟢ dniic = do not interact if close
 ⟢ bgwi = be gentle when interacting
@@ -70,7 +75,8 @@ Interested In : DreamGame . Forsaken . Law Of Talos . MLBB . Aphmau . Genshin Im
 ⟢ iayor = interact at your own risk
 
 </details>
-↓↓
+
+![image alt](dividers.gif)
 
 <details>
 <summary>Blinkies</summary>
